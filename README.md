@@ -1,5 +1,6 @@
 # tracker
 
+https://www.yaozuopan.top/index.php/archives/1014/
 
 https://cf.trackerslist.com/best.txt
 
