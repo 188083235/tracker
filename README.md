@@ -2,6 +2,8 @@
 
 https://www.yaozuopan.top/index.php/archives/1014/
 
+https://blog.gbsat.org/?p=49
+
 https://cf.trackerslist.com/best.txt
 
 https://cf.trackerslist.com/all.txt
